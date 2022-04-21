@@ -1,0 +1,1 @@
+# OSPO_Tangiev_Laba2
